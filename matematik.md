@@ -1,1 +1,2 @@
-
+# Matematik
+bir dildir. basit bir alfabesi, basit dilbilgisi kuralları vardır. bir büyüdür. basit maddelerden hazırlanır. onu sadece dinleyip etkisini hissetmekle yetinebilirsiniz. veya yaşarsınız onu, ruhunuzu ele geçirir. ama bunun için içinizde sihir olması gerekir. Hayata bir yardımcıdır ve de gözünüze de gözlüktür matematik. Aslında azıcık dikkatle bakıldığında her şeyin oranı orantısı ve ölçüsü vardır. Oran orantı da bir matematiktir. Hayat her zaman ama her zaman dengeyi ölçü kabul eder. Ne yaparsanız yapın ölçüsünü kaçırdığınız zaman zehrolur hayat fazla sevginin fazla emeğin fazla göz yaşının fazla bağlanmanın fazla ilgilenmenin fazla hırsın fazla umudun da ölçüsü olmazsa yaşanılmaz olur bu hayat. Bu yüzden matematik mutlu bir hayat için gerekli bir rehberdir.
